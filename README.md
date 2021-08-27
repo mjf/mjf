@@ -1,2 +1,1 @@
-- 🌱 I’m currently learning *Rust*
-- 📫 Visit [my website](https://mjf.cz)
+**WOULD YOU LIKE TO KNOW [MORE](https://mjf.cz/resume) ?**
