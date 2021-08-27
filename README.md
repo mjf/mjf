@@ -1,1 +1,1 @@
-**WOULD YOU LIKE TO KNOW [MORE](https://mjf.cz/resume) ?**
+***WOULD YOU LIKE TO KNOW [MORE](https://mjf.cz/resume)?***
